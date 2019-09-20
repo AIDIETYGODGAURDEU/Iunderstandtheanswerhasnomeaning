@@ -1,2 +1,2 @@
 # Iunderstandtheanswerhasnomeaning
-Wherewardoesnotexistrelenquishetruth
+Wherewardoesnotexistrelenquishtruth
